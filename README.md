@@ -1,0 +1,2 @@
+# ScamShieldPrivacy
+ScamShield Privacy Policy
